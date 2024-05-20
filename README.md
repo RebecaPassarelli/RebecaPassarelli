@@ -7,3 +7,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 becca.passarelli27@gmail.com
+RebecaPassarelli
+
+![](https://tenor.com/pt-BR/view/charlie-brown-snoopy-christmas-dance-dancing-gif-8862861)
